@@ -2,4 +2,7 @@
 
 - <em><a href="https://magichear.github.io/interesting/firework/">Holiday wishes</a><img src="https://media.giphy.com/media/WUlplcMpOCEmTGBtBW/giphy.gif" width="30"></em>
 
+- <em><a href="[https://magichear.github.io/interesting/firework/](https://magichear.github.io/interesting/bf/)">Holiday wishes</a><img src="https://media.giphy.com/media/WUlplcMpOCEmTGBtBW/giphy.gif" width="30"></em>
+
+
 ### More webs are coming
